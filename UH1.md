@@ -1,0 +1,1 @@
+Meus CLIENTES precisam realiza AGENDAMETOS, mas eles são sabem os HORÁRIOS disponíveis
